@@ -1,2 +1,0 @@
-# byryngang
-byryyyn
